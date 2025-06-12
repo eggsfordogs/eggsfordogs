@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @eggsfordogs
 - 👀 I’m interested in having knives taped to me and being set loose.
-- 🌱 I’m currently learning beep boops and data tables.
-- 💞️ I’m looking to collaborate on gay sci-fi and culture insight flowcharts.
 - 📫 How to reach me ... well, hehe, do not!
 
 <!---
